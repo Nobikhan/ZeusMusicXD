@@ -1,6 +1,6 @@
 # ZeusXD Music
 
-<p align="center"><a href="https://t.me/MARcos_ZEUS_XD"><img src="https://te.legra.ph/file/bae74190b4bbcfa058415.jpg"></a></p>
+<p align="center"><a href="https://t.me/MARcos_ZEUS_XD"><img src="https://te.legra.ph/file/7a7b7741a70ea9ccd9fb5.jpg"></a></p>
 
 
 # ʜᴇʀoᴋᴜ ᴅᴇᴘʟᴏʏ
